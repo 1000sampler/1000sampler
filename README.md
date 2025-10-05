@@ -1,4 +1,4 @@
-# thestreetswin
+
 dave he them 
 
 typically in the homestuck area or with friends 
